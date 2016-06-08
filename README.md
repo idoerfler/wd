@@ -1,0 +1,2 @@
+# wd
+kurs chzang juni
